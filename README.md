@@ -1,0 +1,5 @@
+![Screenshot from 2024-06-06 13-55-26](https://github.com/Junaid-Ahmad-69/Habbit-theme/assets/85307602/3ea6c475-fc36-4d8e-a696-538e49506bf1)
+![Screenshot from 2024-06-06 13-55-30](https://github.com/Junaid-Ahmad-69/Habbit-theme/assets/85307602/7ca4ab3b-5c1b-4fa1-af20-a4d373ba02e7)
+![Screenshot from 2024-06-06 13-55-47](https://github.com/Junaid-Ahmad-69/Habbit-theme/assets/85307602/9c524019-35f7-4f3d-a18e-f1d26a64b37b)
+![Screenshot from 2024-06-06 13-55-50](https://github.com/Junaid-Ahmad-69/Habbit-theme/assets/85307602/981367ec-6d05-4db6-884a-e2c79763a6dd)
+![Screenshot from 2024-06-06 13-55-56](https://github.com/Junaid-Ahmad-69/Habbit-theme/assets/85307602/5d0d2066-ac43-45e9-9f77-141a31e0d55d)
